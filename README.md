@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Punnaros Damrongsak, you can call me 'Fah'.
 - 👀 I’m interested in Network, Cloud
-- 🌱 I’m student at KMITL
+- 🌱 I’m studying at KMITL
 - 📫 How to reach me 
 - email : iampunnaros@hotmail.com
 - youtube channel : [cool kids wanna sleep](https://www.youtube.com/channel/UCjJhJUG9Ws2Cjs-tV611cfw)
